@@ -1,2 +1,2 @@
 # TukkeBaazi
-Yahan Codes Ki Nuclear Testing kI Jaati hai 
+Yahan Codes Ki Nuclear Testing Ki Jaati hai 
